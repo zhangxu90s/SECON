@@ -1,3 +1,3 @@
-# SC
+# SECON
 Coming soon!
 
